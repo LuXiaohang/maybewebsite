@@ -1,1 +1,2 @@
-http://skitter.cn/newweb/main.php
+Currently, public service advertisement is chaotic and few people pay attention to it. Thereupon, MAYBE emerges as the times require and focuses on increasing involvement in commonweal. The creative website which is a crowdsourcing website has two main user groups: one yearns for ideas to apply for their projects; the other holds ideas and pined for opportunities to show their ideas. This website is like a bridge between two groups. Moreover, the website deliberately adds Casual Look section, to explore underlying users belonging to the two groups.  
+For more information, can enter the site http://skitter.cn/newweb/main.php
